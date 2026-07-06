@@ -1,4 +1,4 @@
-# 
+# Secure Avast Premium Security extensions for Mac OS | Free Avast Premium Security extensions for PC Windows. Featuring web protection and cross-platform sync — optimized for maximum performance on every platform.
 
 
 
